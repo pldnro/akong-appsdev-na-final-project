@@ -1,5 +1,6 @@
 # akong-appsdev-na-final-project
-ari nako ibutang among progressions mga mamser
+ari nako ibutang among progressions mga mamser, pang personal use raman unta ni
+pero naa naman mi final project maong di nako mailisan sad
 
 kay we lab sir rasty mao ni ang the goat
 
